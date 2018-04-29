@@ -1,0 +1,2 @@
+# itaksafelink
+safeblogedukasi
